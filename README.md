@@ -1,0 +1,1 @@
+# Snippyly-Task-Cursor-Chat
